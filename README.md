@@ -1,2 +1,1 @@
-# 1
-1
+Tuka gledas li nesto 
